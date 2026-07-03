@@ -1,3 +1,3 @@
 " c'mon , smile , Parrot . You're safe . "
 
-https://tenor.com/ru/view/border-line-violet-gradient-gif-17763159
+https://media1.tenor.com/m/S2TlbsmiokQAAAAd/border-line-violet.gif
