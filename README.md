@@ -7,7 +7,7 @@
                                 " Parrot . . .  I am Wifies . "
 
 
-Helloo !! Wifies kin here . 
+Helloo !! 
                                           I'd prefer being called Caelumi , although Yese still works too .
 
 Note that i am a minor and i do have a partner . Any suggestive comments will make me uncomfortable . Flirting ( as long as its a joke ) is fine only if you're a close friend . 
