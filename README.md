@@ -27,11 +27,11 @@ I am 14 years old . Bday ; dec. 17
 
         I'm in alot of fandoms,but here's some :
 
-UnstableSMP/MCYT
-ALNST/ZOMST
-BSD
+UnstableSMP/MCYT,
+ALNST/ZOMST,
+BSD,
 and some more i'll probably list soon ^_<
 
-                 With my friends , i'd say i'm more ambrivert with a more extrovert lean , overall i am introvert .
+                 ambrivert.
 
-I get attached to people too quickly..
+I get attached to people too quickly..send help 
