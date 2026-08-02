@@ -35,3 +35,5 @@ and some more i'll probably list soon ^_<
                  ambrivert.
 
 I get attached to people too quickly..send help 
+
+Proud pansexual and genderfluid.>_<
